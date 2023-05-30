@@ -4,7 +4,7 @@
 
 最近在用「 AI 画唐诗」，想到一个玩法，我贴出 Midjourney 的画，请大家猜唐诗，第一个猜中的朋友将获得价值 5 美元的 http://Magickpen.com Pro 账号一枚。
 
-活动地址： https://twitter.com/hashtag/AI%E7%94%BB%E5%94%90%E8%AF%97
+活动地址： https://twitter.com/hashtag/AI%E7%94%BB%E5%94%90%E8%AF%97?f=live
 
 注意：需要在 twitter 中参加。
 
