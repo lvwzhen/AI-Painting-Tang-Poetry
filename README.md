@@ -15,7 +15,9 @@
 ![](https://pbs.twimg.com/media/FxQpZl4aMAARn5_?format=jpg&name=medium)
 
 《桃花溪》(唐)张旭
+
 隐隐飞桥隔野烟，石矶西畔问渔船。
+
 桃花尽日随流水，洞在清溪何处边。
 
 **2023-05-27**
@@ -23,9 +25,13 @@
 ![](https://pbs.twimg.com/media/FxGDmCLaYAArqf_?format=jpg&name=medium)
 
 《题破山寺后禅院》 (唐)常建
+
 清晨入古寺，初日照高林。
+
 曲径通幽处，禅房花木深。
+
 山光悦鸟性，潭影空人心。
+
 万籁此都寂，但余钟磬音。
 
 **2023-05-26**
@@ -33,7 +39,9 @@
 ![](https://pbs.twimg.com/media/FxBTZVTaYAAlJJt?format=jpg&name=medium)
 
 《宿建德江》孟浩然
+
 移舟泊烟渚，日暮客愁新。
+
 野旷天低树，江清月近人。
 
 **2023-05-25**
@@ -41,7 +49,9 @@
 ![](https://pbs.twimg.com/media/Fw8Lvp3aAAAXITM?format=jpg&name=medium)
 
 《登鹳雀楼》王之涣
+
 白日依山尽，黄河入海流。
+
 欲穷千里目，更上一层楼。
 
 ---
